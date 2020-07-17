@@ -17,18 +17,3 @@
 [✈FOXDNA-线路极延迟/8k视频](https://foxdna.com/#/register?code=IgBOtcnt)
 
 [✈虎窝内部机场-包流量/不限时](http://faka.huwo.online/)
-
-##苹果美区账号 APPLE ID 免费账号共享
-
-* id1@appledi.com 密码：Appledi1234 
-* id2@appledi.com 密码：Appledi123 
-* id3@appledi.com 密码：Appledi321 
-* grahaml1637@icloud.com 密码：Aneeo.com-7309425
-* aneeo-five@outlook.com 密码：Aneeo.com-894121
-* aneeo-nine@outlook.com 密码：Aneeo.com-7485804
-
-切记勿登录iCloud！切记勿登录iCloud！切记勿登录iCloud！
-
-在设置登录有可能泄漏隐私及手机变砖，并且无法解锁！
-
-账号使用人数较多，账号容易被锁，登录后选择发送邮件要求解锁即可。
