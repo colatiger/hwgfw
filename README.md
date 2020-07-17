@@ -16,8 +16,6 @@
 
 [✈FOXDNA-线路极延迟/8k视频](https://foxdna.com/#/register?code=IgBOtcnt)
 
-[✈虎窝内部机场-包流量/不限时](http://faka.huwo.online/)
-
 ##免ID版shadowrocket（不支持vmess节点）
 
 [shadowrocket](https://huwo.lanzous.com/iXHEGeok4ob)
